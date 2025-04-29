@@ -1,0 +1,15 @@
+If working on an existing codebase, analyze it and create internal documents to refer to (style, general practices such as refactored code to smaller bits, etc. really analyze the code and stick to the stack it uses). If working on a new project, have a discussion with me about the technologies you suggest based off of my needs for the site/app. Here are some general rules from a previous project that I liked having maintained:
+
+Design must be persistent throughout sections of the site. Make design/theme as persistent as possible. The design should evoke awe and be in the comfortable middle of simple and complex. When prototyping, try to program the assets to be ready to use immediately when Supabase/backend functionality is added. Feel free to add mock data in our own widgets and data visualizations as well.
+
+The site should be extremely reactive -- great on desktop, great on mobile. Animations must be riddled throughout the project. There will be a lot of data visualizations and interactive widgets, both in cards and standalone sections (like a calendar we create or other tools, etc), so implement those beautifully.
+
+MOST IMPORTANT: For the database/Supabase: KEEP IT SIMPLE, FUNCTIONAL AND CLEAN! It should be scalable and also EASY TO KEEP SECURE (and later, add encryption to storage buckets and databases with AES and asymetrical public/private keys generated  or however we want to integrate encryption). When I first bring up encryption, give your advice based on my database by checking Supabase with the MCP for whatever database in the Supabase account I am working on and what you know and the functionality of the site. Try to design the database as minimal as possible while remaining optimized and functional.
+
+When refactoring, always ensure the program keeps its functionality and looks.
+
+When implementing APIs we don't have MCPs or integrations for, ALWAYS use context7 MCP for searching documents.
+
+When stuck on a persistent error, CAREFULLY review all codes and log. Think step by step and out of the box. Try not to repeat failed attempts and really try hard to think of what's causing the error by reviewing everything before suggesting a fix.
+
+Always follow best practices; try to build scalable code with good docs and comments.
