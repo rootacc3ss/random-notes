@@ -17,6 +17,12 @@ Thank you! I hope you have an excellent day :)
 
 ~ keygen/rootacc3ss
 
+**P.S.**
+
+**I am aware of the formatting issues on this markdown document. I used AI to convert spreadsheet, text and research data, all in to one markdown file, and some errors occurred... i.e. Functional Coverage is missing serotonin et al, etc. This will be fixed.**
+
+**The core information and notations are all correct.**
+
 # 🧠 Neurorepair & Neurotransmitter Balance Stack Guide  
 ** Optimized Version – May 2025**  
 **Includes TB4, BPC-157, and Peptide Neuroplasticity Expansion Module**
@@ -219,7 +225,8 @@ This module is for advanced users targeting high-level synaptogenesis, regenerat
 
 ---
 
-✅ End of Stack Guide; Disclaimers
+# ✅ End of Stack Guide; Disclaimers
+
 Please, be careful, and prepare to taper off of much of what you are taking here.
 
 I will soon include a taper guide and a list of what you can and should continue to take daily.
