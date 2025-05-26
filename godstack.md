@@ -19,7 +19,7 @@ Thank you! I hope you have an excellent day :)
 
 **P.S.**
 
-**I am aware of the formatting issues on this markdown document. I used AI to convert spreadsheet, text and research data, all in to one markdown file, and some errors occurred... i.e. Functional Coverage is missing serotonin et al, etc. This will be fixed.**
+**I am aware of the formatting issues on this markdown document. I used AI to convert spreadsheet, text and research data, all in to one markdown file, and some errors occurred... i.e. section "Functional Coverage" is missing serotonin et al, etc. This will be fixed.**
 
 **The core information and notations are all correct.**
 
