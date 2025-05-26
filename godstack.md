@@ -207,8 +207,13 @@ This module is for advanced users targeting high-level synaptogenesis, regenerat
 
 ✅ End of Stack Guide; Disclaimers
 Please, be careful, and prepare to taper off of much of what you are taking here.
+
 I will soon include a taper guide and a list of what you can and should continue to take daily.
+
 You may only need a round or two of peptides, maybe a cycle overtime. If you are not having severe effects of brain damage from drug abuse or traumas, do not take the full version of this stack. 
+
 This stack was created for those suffering from what was previously mentioned and who need rigorous care and imminent repair. 
+
 Once again, @keygen / rootacc3ss / HS (myself, the creator of this content) is NOT a doctor or formally trained healthcare provider.
+
 ‼️ CONSULT WITH A DOCTOR BEFORE TAKING ANYTHING, **ESPECIALLY** IF ON OTHER MEDICATION. 
