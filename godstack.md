@@ -1,7 +1,21 @@
 # Note
-If you stumbled upon this in github, I truly implore you to wait for the final version with research to come out. 
-Do not try this. If using any peptides or supplements, contact a doctor.
+If you stumbled upon this on GitHub, it was not meant for the general public (yet). I truly implore you to wait for the final version with research to come out before following this; for now, it should be disregarded.
+
+Do not try this stack. If using any peptides or supplements, contact a doctor.
+
 This is not medical advice. I am a passionate researcher, not a clinician.
+
+If you're curious about this type of thing, preliminarily subscribe to my Substack at the link below.
+
+https://modernbiohacker.substack.com
+
+If you're curious about technology, blackhat hacking and fraud methodologies, AI; just fun stuff in general, subscribe to my first Substack, listed below.
+
+https://dspress.substack.com
+
+Thank you! I hope you have an excellent day :)
+
+~ keygen/rootacc3ss
 
 # 🧠 Neurorepair & Neurotransmitter Balance Stack Guide  
 ** Optimized Version – May 2025**  
