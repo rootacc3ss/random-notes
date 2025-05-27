@@ -257,7 +257,8 @@ Next to purchase after running stack successfully:
 
 TB4 after one month BPC, one month off then cycle BPC+TB4.
 
-Methylene Blue (energy for CFS among other benefits), start at 10mg w/ no more than 20-30 in a day. Put directly in to a cup of coffee for best results.
+~~Methylene Blue (energy for CFS among other benefits), start at 10mg w/ no more than 20-30 in a day. Put directly in to a cup of coffee for best results.~~
+✅ Purchased, not yet adding to stack until I know it's good.
 
 SPG302 for mentions above.
 
@@ -293,6 +294,9 @@ Maybe don't worry so much about the peptides and chems outside of BPC, TB4 and S
 
 Before adding anything from next purchases or anything outside of the primary stack, see how this one works for you.
 
-Piracetam may be a good addition to bromantane, or low dose noopept
+Piracetam may be a good addition to bromantane, or low dose noopept. 
 
-Forgot to buy Glycine. This Amazon et al. shipment(s) should include everything from the main stack minus glycine (which sucks but I don't want to drink a massive amount of that anyways right now) and TB4. 
+~~Forgot to buy Glycine. This Amazon et al. shipment(s) should include everything from the main stack minus glycine (which sucks but I don't want to drink a massive amount of that anyways right now) and TB4.~~
+Went back and got some. 
+
+Latest shipments include everything minus L-theanine, L-DOPA and the stuff I already have. I will list out everything once it all arrives on Saturday.
