@@ -269,6 +269,8 @@ Noopept (just to have on hand)
 
 Test those in addition to current stack, then implement Cerebrolysin, FGL and Dihexa as needed
 
+---
+
 ## Sources
 
 RuPharma for various branded chemicals (Cerebrolysin)
@@ -281,4 +283,12 @@ Amazon for most things including MBlue and Noopept
 
 Science.bio for bromantane and most noots
 
-peptidesciences.com for peptides (there are a few other good sources, heard good about limitlesslifenootropics.com, biotechpeptides and corepeptides i need to research)
+peptidesciences.com for peptides (there are a few other good sources, heard good about limitlesslifenootropics.com, biotechpeptides and corepeptides i need to research). 
+
+---
+
+## Notes
+
+Maybe don't worry so much about the peptides and chems outside of BPC, TB4 and SPG as I may need to prune some synapses (autism lol).
+
+Before adding anything from next purchases or anything outside of the primary stack, see how this one works for you.
