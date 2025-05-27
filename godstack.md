@@ -294,3 +294,5 @@ Maybe don't worry so much about the peptides and chems outside of BPC, TB4 and S
 Before adding anything from next purchases or anything outside of the primary stack, see how this one works for you.
 
 Piracetam may be a good addition to bromantane, or low dose noopept
+
+Forgot to buy Glycine. This Amazon et al. shipment(s) should include everything from the main stack minus glycine (which sucks but I don't want to drink a massive amount of that anyways right now) and TB4. 
