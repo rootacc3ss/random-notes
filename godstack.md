@@ -255,20 +255,20 @@ Don't worry about or consider these.
 
 Next to purchase after running stack successfully:
 
-TB4 after one month BPC, one month off then cycle BPC+TB4.
-
 ~~Methylene Blue (energy for CFS among other benefits), start at 10mg w/ no more than 20-30 in a day. Put directly in to a cup of coffee for best results.~~
 ✅ Purchased, not yet adding to stack until I know it's good.
 
-SPG302 for mentions above.
+~~NAD+ for testing~~ ✅ Added, **Add both MBlue and NAD+ to core stack after testing.**
 
-Bromantane for a Sabroxy alternative, nasal spray preferred. Maybe SEMAX?
+TB4 after one month BPC. So, one month off of BPC after first cycle then cycle BPC+TB4 for another month.
 
-NAD+ for testing
+SPG302 for mentions above. Already reached out to source on WhatsApp.
 
-Noopept (just to have on hand)
+Bromantane for a quick boost, nasal spray preferred.
 
-Test those in addition to current stack, then implement Cerebrolysin, FGL and Dihexa as needed
+Noopept (just to have on hand or to use with Bromantane). 
+
+Test those in addition to current stack, then implement Cerebrolysin, FGL and Dihexa as needed. All of those are the next purchases to follow this list of purchases. 
 
 ---
 
@@ -299,4 +299,4 @@ Piracetam may be a good addition to bromantane, or low dose noopept.
 ~~Forgot to buy Glycine. This Amazon et al. shipment(s) should include everything from the main stack minus glycine (which sucks but I don't want to drink a massive amount of that anyways right now) and TB4.~~
 Went back and got some. 
 
-Latest shipments include everything minus L-theanine, L-DOPA and the stuff I already have. I will list out everything once it all arrives on Saturday.
+Latest shipments include everything minus L-theanine, L-DOPA and the stuff I already have. Additionally, there is NAD+ and methylBlue. I will list out everything once it all arrives on Saturday. If I happen to come across some money, I might buy L-DOPA for testing. 
