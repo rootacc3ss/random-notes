@@ -292,3 +292,5 @@ peptidesciences.com for peptides (there are a few other good sources, heard good
 Maybe don't worry so much about the peptides and chems outside of BPC, TB4 and SPG as I may need to prune some synapses (autism lol).
 
 Before adding anything from next purchases or anything outside of the primary stack, see how this one works for you.
+
+Piracetam may be a good addition to bromantane, or low dose noopept
