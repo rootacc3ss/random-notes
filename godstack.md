@@ -244,3 +244,23 @@ This stack was created for those suffering from what was previously mentioned an
 Once again, @keygen / rootacc3ss / HS (myself, the creator of this content) is NOT a doctor or formally trained healthcare provider.
 
 ‼️ CONSULT WITH A DOCTOR BEFORE TAKING ANYTHING, **ESPECIALLY** IF ON OTHER MEDICATION. 
+
+---
+
+# Personal Notes
+
+Don't worry about or consider these.
+
+## Next Purchases / Tests
+
+Next to purchase after running stack successfully:
+
+TB4 after one month BPC, one month off then cycle BPC+TB4.
+
+Methylene Blue (energy for CFS among other benefits), start at 10mg w/ no more than 20-30 in a day. Put directly in to a cup of coffee for best results.
+
+SPG302 for mentions above.
+
+## Sources
+
+updated in next update
