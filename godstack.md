@@ -225,6 +225,12 @@ This module is for advanced users targeting high-level synaptogenesis, regenerat
 
 ---
 
+## 👨🏻‍💻 To Research
+
+SPG302 for synaptogenesis as well as reversing dementia, helping with ALS and schizophrenia, etc.
+
+---
+
 # ✅ End of Stack Guide; Disclaimers
 
 Please, be careful, and prepare to taper off of much of what you are taking here.
