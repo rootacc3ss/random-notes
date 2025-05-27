@@ -260,13 +260,13 @@ Next to purchase after running stack successfully:
 
 ~~NAD+ for testing~~ ✅ Added, **Add both MBlue and NAD+ to core stack after testing.**
 
+~~Noopept (just to have on hand or to use with Bromantane).~~ ✅ Added, should have some on hand soon with dosage scoops.
+
 TB4 after one month BPC. So, one month off of BPC after first cycle then cycle BPC+TB4 for another month.
 
 SPG302 for mentions above. Already reached out to source on WhatsApp.
 
 Bromantane for a quick boost, nasal spray preferred.
-
-Noopept (just to have on hand or to use with Bromantane). 
 
 Test those in addition to current stack, then implement Cerebrolysin, FGL and Dihexa as needed. All of those are the next purchases to follow this list of purchases. 
 
@@ -288,7 +288,7 @@ peptidesciences.com for peptides (there are a few other good sources, heard good
 
 ---
 
-## Notes
+## Subnotes
 
 Maybe don't worry so much about the peptides and chems outside of BPC, TB4 and SPG as I may need to prune some synapses (autism lol).
 
