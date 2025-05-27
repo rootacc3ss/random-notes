@@ -261,6 +261,24 @@ Methylene Blue (energy for CFS among other benefits), start at 10mg w/ no more t
 
 SPG302 for mentions above.
 
+Bromantane for a Sabroxy alternative, nasal spray preferred. Maybe SEMAX?
+
+NAD+ for testing
+
+Noopept (just to have on hand)
+
+Test those in addition to current stack, then implement Cerebrolysin, FGL and Dihexa as needed
+
 ## Sources
 
-updated in next update
+RuPharma for various branded chemicals (Cerebrolysin)
+
+apeiron.store for oral BPC/TB4 peptides and vitimins
+
+Fandachem.com for SPG302
+
+Amazon for most things including MBlue and Noopept
+
+Science.bio for bromantane and most noots
+
+peptidesciences.com for peptides (there are a few other good sources, heard good about limitlesslifenootropics.com, biotechpeptides and corepeptides i need to research)
