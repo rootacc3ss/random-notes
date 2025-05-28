@@ -256,7 +256,7 @@ Don't worry about or consider these.
 Next to purchase after running stack successfully:
 
 ~~Methylene Blue (energy for CFS among other benefits), start at 10mg w/ no more than 20-30 in a day. Put directly in to a cup of coffee for best results.~~
-✅ Purchased, not yet adding to stack until I know it's good.
+✅ Purchased, not yet adding to stack until I know it's good. **SEE NOTE BELOW ABOUT THIS CHEMICAL**
 
 ~~NAD+ for testing~~ ✅ Added, **Add both MBlue and NAD+ to core stack after testing.**
 
@@ -289,6 +289,8 @@ peptidesciences.com for peptides (there are a few other good sources, heard good
 ---
 
 ## Subnotes
+
+** DO NOT USE METHYLENE BLUE UNTIL OFF OF APs. RESEARCH IF IT CAN BE USED WITH THIS STACK. CHECK AND SEE IF IT INTERACTS WITH LITHIUM. SEROTONIN SYNDROME IS LIKELY.**
 
 Maybe don't worry so much about the peptides and chems outside of BPC, TB4 and SPG as I may need to prune some synapses (autism lol).
 
