@@ -270,7 +270,7 @@ Bromantane for a quick boost, nasal spray preferred.
 
 Test those in addition to current stack, then implement Cerebrolysin, FGL and Dihexa as needed. All of those are the next purchases to follow this list of purchases. 
 
-Selank may be useful, as well. It is also taken nasally. 
+Selank may be useful, as well. It is also taken nasally. I’m also curious about Semax.  
 
 ---
 
