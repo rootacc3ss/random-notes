@@ -290,7 +290,7 @@ peptidesciences.com for peptides (there are a few other good sources, heard good
 
 ## Subnotes
 
-** DO NOT USE METHYLENE BLUE UNTIL OFF OF APs. RESEARCH IF IT CAN BE USED WITH THIS STACK. CHECK AND SEE IF IT INTERACTS WITH LITHIUM. SEROTONIN SYNDROME IS LIKELY.**
+**DO NOT USE METHYLENE BLUE UNTIL OFF OF APs. RESEARCH IF IT CAN BE USED WITH THIS STACK. CHECK AND SEE IF IT INTERACTS WITH LITHIUM. SEROTONIN SYNDROME IS LIKELY.**
 
 Maybe don't worry so much about the peptides and chems outside of BPC, TB4 and SPG as I may need to prune some synapses (autism lol).
 
@@ -298,9 +298,9 @@ Before adding anything from next purchases or anything outside of the primary st
 
 Piracetam may be a good addition to bromantane, or low dose noopept. 
 
-~~Forgot to buy Glycine. This Amazon et al. shipment(s) should include everything from the main stack minus glycine (which sucks but I don't want to drink a massive amount of that anyways right now) and TB4.~~
+~~Forgot to buy Glycine. This Amazon et al. shipment(s) should include everything from the main stack minus glycine (which sucks but I don't want to drink a massive amount of that anyways right now).~~
 Went back and got some. 
 
-Latest shipments include everything minus the stuff I already have. Additionally, there is NAD+, Noopept and methylBlue. I will list out everything once it all arrives on Saturday. 
+Latest shipments include everything minus the stuff I already have. Additionally, there is NAD+, Noopept and methylBlue. This shipment will not have TB4. I will list out everything once it all arrives on Saturday. 
 
 Next orders should specifically be SPG and Bromantane. And, TB4/BPC. Of course, anything else is fine if it needs replinishment. Do NOT try the additional peptides and substances (like Dihexa) until you've ran BPC with TB4. 
