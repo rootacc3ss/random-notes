@@ -329,3 +329,5 @@ get approved science.bio and buy amino bone
 add all new additions to stack (centralize all that you've bought and future chemicals after purchase in to main table, make new tables after this. ensure to get all purchases like SPG, and all the RuPharma/Science.bio/fandachem purchases in first. 
 
 Consider this instead of Cerebro. IV https://drcrista.com/product/cerebropep/
+
+**Override:** Next purchaces Cerebropep, nasal BPC and TB-500 from science.bio, SPG?
