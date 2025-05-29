@@ -262,17 +262,20 @@ Next to purchase after running stack successfully:
 
 ~~Noopept (just to have on hand or to use with Bromantane).~~ ✅ Added, should have some on hand soon with dosage scoops.
 
+~~DAA and Sarcosine; ndma support and sarcosine for scizophrenia~~ ✅ Added, be sure to add to stack. 
+
 TB4 after one month BPC. So, one month off of BPC after first cycle then cycle BPC+TB4 for another month.
 
 SPG302 for mentions above. Already reached out to source on WhatsApp.
 
 Bromantane for a quick boost, nasal spray preferred.
 
-Test those in addition to current stack, then implement Cerebrolysin, FGL and Dihexa as needed. All of those are the next purchases to follow this list of purchases. 
+Test those in addition to current stack, then implement Cerebrolysin, FGL and (~~Dihexa~~ ✅) as needed. All of those are the next purchases to follow this list of purchases. 
 
-Selank may be useful, as well. It is also taken nasally. I’m also curious about Semax.  
+~~Selank may be useful, as well. It is also taken nasally. I’m also curious about Semax.~~ ✅ bought  
 
-R-ALA for heavy metal detox; good to have on hand. 
+
+~~R-ALA for heavy metal detox; good to have on hand.~~ ✅ Added, add to stack. 
 
 Minifridge for supplements. 
 
@@ -307,13 +310,13 @@ Before adding anything from next purchases or anything outside of the primary st
 Piracetam may be a good addition to bromantane, or low dose noopept. 
 
 ~~Forgot to buy Glycine. This Amazon et al. shipment(s) should include everything from the main stack minus glycine (which sucks but I don't want to drink a massive amount of that anyways right now).~~
-Went back and got some. 
+✅ Went back and got some. 
 
-Latest shipments include everything minus the stuff I already have. Additionally, there is NAD+, Noopept and methylBlue. This shipment will not have TB4. I will list out everything once it all arrives on Saturday. 
+Latest shipments include everything minus the stuff I already have. Additionally, there is everytbing marked off above. This shipment will not have TB4. I will list out everything once it all arrives on Saturday. 
 
-Next orders should specifically be SPG and Bromantane (maybe semax and selank, the latter 3 are on science.bio). And, TB4/BPC. Of course, anything else is fine if it needs replinishment. Do NOT try the additional peptides and substances (like Dihexa, even if you buy from science.bio) until you've ran BPC with TB4. Look on favorites photo album for a list on sci.bio and a reminder for fanda. 
+‼️‼️ Next orders should specifically be SPG and ~~Bromantane (maybe semax and selank, the latter 3 are on science.bio). And, TB4/BPC. Of course, anything else is fine if it needs replinishment. Do NOT try the additional peptides and substances (like Dihexa, even if you buy from science.bio) until you've ran BPC with TB4. Look on favorites photo album for a list on sci.bio and a reminder for fanda.~~ All that is missing now is TB4 from Apeiron, nasal sprays from science.bio and SPG. Get the nasal sprays because fuck it at this point and then get SPG, TB4 apeiron pills, and the additional peptides (cerebro, FGL, etc).  
 
-Grab some R-ALA for heavy metal detox. check if we have Calcium-D-Glucarate with that. 
+~~Grab some R-ALA for heavy metal detox. check if we have Calcium-D-Glucarate with that.~~ ✅
 
 Visit doctor for low dose naltrexone for lupus and mental health ailments. 
 
