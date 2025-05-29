@@ -313,7 +313,7 @@ Latest shipments include everything minus the stuff I already have. Additionally
 
 Next orders should specifically be SPG and Bromantane (maybe semax and selank, the latter 3 are on science.bio). And, TB4/BPC. Of course, anything else is fine if it needs replinishment. Do NOT try the additional peptides and substances (like Dihexa, even if you buy from science.bio) until you've ran BPC with TB4. Look on favorites photo album for a list on sci.bio and a reminder for fanda. 
 
-Grab some R-ALA for heavy metal detox. 
+Grab some R-ALA for heavy metal detox. check if we have Calcium-D-Glucarate with that. 
 
 Visit doctor for low dose naltrexone for lupus and mental health ailments. 
 
