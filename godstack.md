@@ -314,7 +314,7 @@ Piracetam may be a good addition to bromantane, or low dose noopept.
 
 Latest shipments include everything minus the stuff I already have. Additionally, there is everytbing marked off above. This shipment will not have TB4. I will list out everything once it all arrives on Saturday. 
 
-‼️‼️ Next orders should specifically be SPG and ~~Bromantane (maybe semax and selank, the latter 3 are on science.bio). And, TB4/BPC. Of course, anything else is fine if it needs replinishment. Do NOT try the additional peptides and substances (like Dihexa, even if you buy from science.bio) until you've ran BPC with TB4. Look on favorites photo album for a list on sci.bio and a reminder for fanda.~~ All that is missing now is TB4 from Apeiron, nasal sprays from science.bio and SPG. Get the nasal sprays because fuck it at this point and then get SPG, TB4 apeiron pills, and the additional peptides (cerebro, FGL, etc).  
+‼️‼️ Next orders should specifically be SPG and ~~Bromantane (maybe semax and selank, the latter 3 are on science.bio). And, TB4/BPC. Of course, anything else is fine if it needs replinishment. Do NOT try the additional peptides and substances (like Dihexa, even if you buy from science.bio) until you've ran BPC with TB4. Look on favorites photo album for a list on sci.bio and a reminder for fanda.~~ **All that is missing now is TB4 from Apeiron, nasal sprays from science.bio and SPG. Get the nasal sprays because fuck it at this point and then get SPG, TB4 apeiron pills, and the additional peptides (cerebro, FGL, etc).**  
 
 ~~Grab some R-ALA for heavy metal detox. check if we have Calcium-D-Glucarate with that.~~ ✅
 
