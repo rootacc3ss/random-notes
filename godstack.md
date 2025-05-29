@@ -318,3 +318,7 @@ Grab some R-ALA for heavy metal detox.
 Visit doctor for low dose naltrexone for lupus and mental health ailments. 
 
 Make "essential medications list" with propanolol and the likes. 
+
+get on metformin
+
+get approved science.bio and buy amino bone
