@@ -282,7 +282,7 @@ apeiron.store for oral BPC/TB4 peptides and vitimins
 
 Fandachem.com for SPG302
 
-Amazon for most things including MBlue and Noopept
+Amazon for most things including MBlue and Noopept. They have Nutricost, BulkSupplements, Nootropics Depot and more. 
 
 Science.bio for bromantane and most noots
 
