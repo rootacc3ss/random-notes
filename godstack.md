@@ -288,7 +288,7 @@ Science.bio for bromantane and most noots
 
 peptidesciences.com for peptides (there are a few other good sources, heard good about limitlesslifenootropics.com, biotechpeptides and corepeptides i need to research). 
 
-Everychem for some noots/chems
+Everychem for some noots/chems (Cosmic Nootropics is better)
 
 ---
 
